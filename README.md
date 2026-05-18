@@ -2,7 +2,7 @@
 
 - 👀 I’m interested in books, movies, and anime!
 
-- 🌱 I’m currently exploring new stories and expanding my digital collection
+- 🌱 I’m currently exploring new stories and expanding my collection
 
 - 💞️ I want to collaborate on creative and artistic projects
 
